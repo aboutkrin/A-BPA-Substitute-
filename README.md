@@ -2,7 +2,7 @@
 Global Entr. &amp; Innovation  - University of Massachusetts Lowell
 
 #Business Plan By:
-Ryan Lally, XIA MIN, Krin Yongvongphaiboon, Shruthi Kathare, Shriya Desai 
+Krin Yongvongphaiboon, Ryan Lally, XIA MIN, Shruthi Kathare, and Shriya Desai 
 
 #Executive Summary
 
